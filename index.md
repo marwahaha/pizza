@@ -2,7 +2,7 @@
 
 Nothing says America like the vaguely appropriated, mass-produced wheat and dairy staple that is grilled cheese... I mean pizza. Perhaps most famous in [New York](http://www.sliceharvester.com/), this dish is relentlessly remixed by the people and places who celebrate it.
 
-There are so many pizza places here. At least 15 in Berkeley. Here are some of my favorites:
+There are so many pizza places here. At least 15 in Berkeley. Here are some of my memories.
 
 ## Any "East Bay" pizza spot
 
@@ -18,21 +18,19 @@ The best examples of this are [Cheese Board](https://cheeseboardcollective.coop/
 
 Cheese Board and the Arizmendi shops are in an [association of cooperatives](http://arizmendibakery.coop/), which is freakin cool.
 
+## Other favorites
 
-## Bobby G's
 [Bobby G's](https://bobbygspizzeria.com/) feels all-American in a counterculture town. Pizza, beer, and sports? You got it. There's jazz some evenings. My fondest memory here is chowing down after a day of off-roading in [Steven](http://www.syadlowsky.com/)'s truck.
 
-## Zachary's
-[What a delight.](https://zacharys.com/) Are you having a deep-dish fantasy? The pizza is hearty; it's like if Uno's used tomato instead of bread for the filling. The spinach-and-mushroom is consistently good. And you don't need a fork, [unless you want haters](https://www.youtube.com/watch?v=cSBeXw07wGU).
+[Zachary's is a delight.](https://zacharys.com/) Are you having a deep-dish fantasy? The pizza is hearty; it's like if Uno's used tomato instead of bread for the filling. The spinach-and-mushroom is consistently good. And you don't need a fork, [unless you want haters](https://www.youtube.com/watch?v=cSBeXw07wGU).
 
-## West Coast
-[This is nostalgic](https://www.westcoastpizza.com/) for me; they have (1) delivery and (2) Cal student discounts. West Coast is a cheese-beats-sauce kind of place, so obviously their cheesy sticks are the specialty. Good specials. In 2020 they're so close that I just walk over.
+[West Coast is nostalgic](https://www.westcoastpizza.com/) for me; they have (1) delivery and (2) Cal student discounts. West Coast is a cheese-beats-sauce kind of place, so obviously their cheesy sticks are the specialty. Good specials. In 2020 they're so close that I just walk over.
 
-## Arinell's
-[Real NY-style](https://www.yelp.com/biz/arinell-pizza-berkeley-2), complete with hardass service. I was impressed with their Sicilian pizza.
+[Arinell's is real NY-style](https://www.yelp.com/biz/arinell-pizza-berkeley-2), complete with hardass service. I was impressed with their Sicilian pizza.
 
 ## Places I haven't been
-I have not yet checked out [The King's Feet](https://www.thekingsfeet.com/); vegan pizza makes me nervous.
+
+I haven't tried [The King's Feet](https://www.thekingsfeet.com/); vegan pizza makes me nervous.
 
 I've heard [Little Star](https://www.littlestarsolano.com/) is good, but upscale.
 
@@ -42,4 +40,4 @@ I've heard [Little Star](https://www.littlestarsolano.com/) is good, but upscale
 
 ---
 
-wishing you pizza joy in your future...
+Wishing you pizza joy in your future...

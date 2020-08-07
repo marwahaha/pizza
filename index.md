@@ -2,7 +2,7 @@
 
 Nothing says America like the vaguely appropriated, mass-produced wheat and dairy staple that is grilled cheese... I mean pizza. Perhaps most famous in [New York](http://www.sliceharvester.com/), this dish is relentlessly remixed by the people and places who celebrate it.
 
-There are so many pizza places here. At least 15 in Berkeley. Here are some of my memories.
+There are so many pizza places here. At least 15 in Berkeley. Here are my notes on the craft.
 
 ## Any "East Bay" pizza spot
 

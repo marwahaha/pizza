@@ -24,7 +24,7 @@ Cheese Board and the Arizmendi shops are in an [association of cooperatives](htt
 
 [Zachary's is a delight.](https://zacharys.com/) Are you having a deep-dish fantasy? The pizza is hearty; it's like if Uno's used tomato instead of bread for the filling. The spinach-and-mushroom is consistently good. And you don't need a fork, [unless you want haters](https://www.youtube.com/watch?v=cSBeXw07wGU).
 
-[West Coast is nostalgic](https://www.westcoastpizza.com/) for me; they have (1) delivery and (2) Cal student discounts. West Coast is a cheese-beats-sauce kind of place, so obviously their cheesy sticks are the specialty. Good specials. In 2020 they're so close that I just walk over.
+[West Coast is nostalgic](https://www.westcoastpizza.com/) for me; they have (1) delivery and (2) Cal student discounts. West Coast is a cheese-beats-sauce kind of place, so obviously their cheesy sticks are my absolute favorite. Good specials. In 2020 they're so close that I just walk over.
 
 [Arinell's is real NY-style](https://www.yelp.com/biz/arinell-pizza-berkeley-2), complete with hardass service. I was impressed with their Sicilian pizza.
 

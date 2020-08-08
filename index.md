@@ -28,7 +28,7 @@ Cheese Board and the Arizmendi shops are in an [association of cooperatives](htt
 
 [Arinell's is real NY-style](https://www.yelp.com/biz/arinell-pizza-berkeley-2), complete with hardass service. I was impressed with their Sicilian pizza.
 
-I've only been to [Lanesplitter](https://lanesplitterpizza.com/) during the COVID-19 pandemic. My friend Michael lived and worked right there; we'd eat it hot right on the sidewalk or at the nearby park. Big and cheesy slices.
+I've only been to [Lanesplitter](https://lanesplitterpizza.com/) during the COVID-19 pandemic. My friend Michael lived and worked down the block; we'd eat it hot right on the sidewalk or at the nearby park. Big and cheesy slices.
 
 ## Places I haven't been
 

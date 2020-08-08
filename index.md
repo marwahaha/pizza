@@ -22,7 +22,7 @@ Cheese Board and the Arizmendi shops are in an [association of cooperatives](htt
 
 [Bobby G's](https://bobbygspizzeria.com/) feels all-American in a counterculture town. Pizza, beer, and sports? You got it. There's jazz some evenings. My fondest memory here is chowing down after a day of off-roading in [Steven](http://www.syadlowsky.com/)'s truck.
 
-[Zachary's is a delight.](https://zacharys.com/) Are you having a deep-dish fantasy? The pizza is hearty; it's like if Uno's used tomato instead of bread for the filling. The spinach-and-mushroom is consistently good. And you don't need a fork, [unless you want haters](https://www.youtube.com/watch?v=cSBeXw07wGU).
+[Zachary's is a delight.](https://zacharys.com/) Are you having a deep-dish fantasy? The pizza is hearty; it's like if [Uno's](https://en.wikipedia.org/wiki/Uno_Pizzeria_%26_Grill) used tomato instead of bread for the filling. The spinach-and-mushroom is consistently good. And you don't need a fork, [unless you want haters](https://www.youtube.com/watch?v=cSBeXw07wGU).
 
 [West Coast is nostalgic](https://www.westcoastpizza.com/) for me; they have (1) delivery and (2) Cal student discounts. West Coast is a cheese-beats-sauce kind of place, so obviously their cheesy sticks are my absolute favorite. Good specials. In 2020 they're so close that I just walk over.
 

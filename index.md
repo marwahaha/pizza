@@ -2,9 +2,11 @@
 
 Nothing says America like the vaguely appropriated, mass-produced wheat and dairy staple that is grilled cheese... I mean pizza. Perhaps most famous in [New York](http://www.sliceharvester.com/), this dish is relentlessly remixed by the people and places who celebrate it.
 
-There are so many pizza places here. At least 15 in Berkeley. Here are my notes on the craft.
+Pizza is a staple in my life. After my parents' divorce, Friday nights became informal pizza-on-the-floor nights. Many college events I attended gave free slices just for showing up. It's my favorite thing to cook at home; I've made pizza at least once a week since 2018.
 
-## Any "East Bay" pizza spot
+Berkeley, CA, where I've lived most of my adult life, has at least fifteen pizza joints. Here are my notes on the craft.
+
+## The "East Bay" pizza
 
 From my experience, there's a culturally dominant pizza style:
 

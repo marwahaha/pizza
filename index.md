@@ -32,11 +32,11 @@ Cheese Board and the Arizmendi shops are in an [association of cooperatives](htt
 
 I've only been to [Lanesplitter](https://lanesplitterpizza.com/) during the COVID-19 pandemic. My friend Michael lived and worked down the block; we'd eat it hot right on the sidewalk or at the nearby park. Big and cheesy slices.
 
+[Little Star](https://www.littlestarsolano.com/) has a delicious cornmeal crust on their deep-dish pizza. It is pricey.
+
 ## Places I haven't been
 
 I haven't tried [The King's Feet](https://www.thekingsfeet.com/); vegan pizza makes me nervous.
-
-I've heard [Little Star](https://www.littlestarsolano.com/) is good, but upscale.
 
 [Emilia's](http://emiliaspizzeria.com/) has always intrigued me. Whenever I've gone in person, they're always sold out!
 
